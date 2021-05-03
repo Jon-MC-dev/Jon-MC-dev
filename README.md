@@ -1,0 +1,2 @@
+- 👋 Hola, Yo soy Jonathan Morales Centeno
+- 👀 Actualmente soy un programador en busca de empleo, me interesa seguir aprendiendo y aplicar mis conocimientos para resolver cualquier problema
